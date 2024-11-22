@@ -1,1 +1,0 @@
-# nirmalkukna.github.io
